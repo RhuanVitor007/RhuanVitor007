@@ -1,4 +1,2 @@
-## Hi there 👋
-
-
-![](https://tenor.com/pt-BR/search/bugatti-veyron-gifs)
+## Hi there
+![](https://media.tenor.com/fhasluMHU8sAAAAM/bomba-de-humo-car.gif)
